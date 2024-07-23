@@ -1,4 +1,4 @@
-- 👀 I’m interested in web design, UX design, and programming.
+- 👀 I’m a in web designer, UX design, and programmer.
 
 🌱 I’m currently learning more about responsive design and user psychology to enhance user experiences.
 
