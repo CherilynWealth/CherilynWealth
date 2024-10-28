@@ -4,7 +4,7 @@
 
 💻 I’m looking to collaborate on web projects that focus on usability and sleek design.
 
-📫 How to reach me: cherilynwealth0595@gmail.com, +2348159079300
+📫 How to reach me: cherilynwealth0595@gmail.com, +2348033387198
 
 😄 Pronouns: Her/She
 
